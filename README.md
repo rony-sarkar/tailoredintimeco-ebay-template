@@ -1,0 +1,1 @@
+# tailoredintimeco-ebay-template
